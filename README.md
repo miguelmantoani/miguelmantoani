@@ -16,6 +16,6 @@ Atualmente, estou aprimorando meus conhecimentos por meio de projetos pessoais, 
 
 - **E-mail profissional**: miguelmantoani@gmail.com 
 - **LinkedIn**:
-[https://www.linkedin.com/in/miguel-ferreira-mantoani]
+[https://www.linkedin.com/in/miguel-ferreira-mantoani-39a77b245?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 
 Estou em busca de oportunidades de estágio na área de tecnologia e desenvolvimento, e estou comprometido(a) com o aprendizado contínuo e com a evolução profissional.
